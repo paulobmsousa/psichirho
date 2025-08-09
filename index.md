@@ -29,4 +29,4 @@ Coming soon! Stay tuned for student-written articles on quantum breakthroughs.
 ---
 
 ## 🤝 Join Us
-Interested in joining? Fill out [this form](https://forms.gle/example) or email us at quantumhorizons@college.edu.
+Interested in joining? Fill out [this form](https://forms.gle/example) or email us at psichirho@gmail.com.
